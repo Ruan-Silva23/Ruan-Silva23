@@ -2,7 +2,7 @@
 - 👀 I’m interested in learn and work in the IT field
 - 🌱 I’m currently learning programming logic
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me: TELL: 839 8617-2363
+- 📫 How to reach me: TELL: +55 83 98617-2363
 - ⚡ Fun fact: ...
 
 <!---
